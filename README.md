@@ -1,1 +1,11 @@
-# Emergancy-Broadchst-erchius-alpha1a
+# Emergency-Broadcast-erchius-alpha1a
+
+S.O.S. - SAVE OUR SPECIES //
+
+EARTH IS UNDER ATTACK FROM AN UNIDENTIFIED ORGANISM. DESTRUCTI#N IS IMMINENT //
+
+EVACUATION IS IMP#SSIBL##WITH NO MA#OR SETTLEMENTS OF##PLANET //
+
+I# Y#U ARE A HUMA# RE##IVING THIS B#OA###ST, WE ARE NOW AN END#NG##ED SPE#IES //
+
+TH##FUTURE ## THE ####### ############ IS#IN YO####HAN#S //
